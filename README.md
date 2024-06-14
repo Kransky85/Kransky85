@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ldavidk1@gmail.com**
 
-- ⚡ Fun fact **I competed professionally in long drive competitions 🏌🏻‍♂️**
+- ⚡ Fun fact: **I competed professionally in long drive competitions 🏌🏻‍♂️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
